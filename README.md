@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Elenalex
 - 👀 I’m interested in 
-- 🌱 I’m currently learning 
+
